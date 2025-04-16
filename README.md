@@ -1,1 +1,7 @@
 # Emergency-tooth-extraction-in-Charlotte-NC
+
+If you’re experiencing severe tooth pain or a dental emergency, you need a dentist open near me who can provide fast, reliable care. At TRU Dental, we offer professional and compassionate emergency dental care in Charlotte, NC, including urgent emergency tooth extraction when you need it most. Our team understands that dental issues don’t always happen during regular hours, which is why we provide access to an emergency weekend dentist in Charlotte, giving you the flexibility to get the treatment you need—when you need it.
+For those searching for a walk in dentist near me, TRU Dental welcomes walk-ins and offers same day dental appointments in Charlotte to make sure you don’t have to wait in pain. Whether it’s a cracked tooth, infection, or unexpected discomfort, we’re here to help you feel better fast. With modern equipment and a caring staff, we’re dedicated to getting you out of pain and back to health quickly and comfortably. Don’t wait—reach out or walk in today for immediate dental care you can trust.
+Our goal is to make emergency dental visits as stress-free as possible. From the moment you arrive, our friendly team works to ensure you're comfortable and informed every step of the way. We accept most major insurance plans and offer flexible payment options, so high-quality care is always within reach. At TRU Dental, we’re committed to being your dependable choice for urgent dental needs in Charlotte.
+
+https://trudentalclt.com/
